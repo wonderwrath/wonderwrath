@@ -5,6 +5,7 @@
 <p align="center">$\color{#916233}{\textsf{ May || 16 || Azure kin || lesbian }}$
 <p align="center">$\color{#916233}{\textsf{ usually seen by friends or alone but always feel free to come up to me / whisper!! }}$
 
+<p align="center">$\color{#916233}{\textsf{ Lil kin list: Jabber Wonger (gachiakuta), Azure (forsaken), Susie (deltarune), Zombiecleo (Vampires smp), Nominalgravy (Bannerfall smp) }}$
 
 <p align="center"><img src="https://ajajajuh.carrd.co/assets/images/image13.png?v=ca3921bc" />
 <p align="center">$\color{#664650}{\textsf{ all profile art by @/fabledfeathers on tmblr }}$
