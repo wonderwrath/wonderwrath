@@ -3,6 +3,7 @@
 <p align="center">$\color{#664650}{\textsf{ ˝ The beat of my heart has long since stopped thanks to you. ˝ }}$
 
 <p align="center">$\color{#916233}{\textsf{ May || 16 || Azure kin || lesbian }}$
+<p align="center">$\color{#916233}{\textsf{ offtab often whisp to get my attention!! }}$
 <p align="center">$\color{#916233}{\textsf{ usually seen by friends or alone but always feel free to come up to me / whisper!! }}$
 
 <p align="center">$\color{#916233}{\textsf{ Lil kin list: Jabber Wonger (gachiakuta), Azure (forsaken), Susie (deltarune), Zombiecleo (Vsmp), Nominalgravy (Bfsmp) }}$
